@@ -48,8 +48,7 @@ I’m working towards building a **Survey Manager** as a practice project in Dja
 ## 🌐 Connect with Me
 
 - [LinkedIn](https://www.linkedin.com/in/edwin-lehlohonolo-setlaba-8a42ba191/details/certifications/)
-- [Facebook](https://www.facebook.com/StarhlugaEdwinSetlaba)
-
+- [Facebook](https://www.facebook.com/starhluga.letseka)
 ---
 
 ## ✨ Fun Facts
